@@ -15,7 +15,9 @@ you might see me in-game as a pony from:
 - project sekai <sup>(i like kanade yoisaki)</sup>
 - Zenbu Kowashite Jigoku De Aishite/Destroy It All & Love Me In Hell <sup>( yoshizara kurumi)</sup>
   
-<sup>(sadly, i don't play pjsk, arknights, hi3 & hsr anymore)</sup>
+<sup>(sadly, i don't play pjsk , hi3 & hsr anymore)</sup>
+
+<sup>(btw i cant access my SP cuz iforgo the pass)</sup>
 
 my birthday is on march 14.<br>
 i'm usually afk / tabbed out.<br>
