@@ -3,7 +3,7 @@
 <img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="400">
 
 you might see me in-game as a pony from:
-- hololive <sup>(i love pekora)</sup>
+- hololive <sup>(i love pekora, shiori & kronii)</sup>
 - murder drones <sup>(j & doll)</sup>
 - madoka magica <sup>(i like sayaka miki)</sup>
 - kakegurui <sup>(i like mary)</sup>
@@ -11,13 +11,10 @@ you might see me in-game as a pony from:
 - arknights <sup>(fiammetta & lappland)</sup>
 - touhou <sup>( fujiwara no mokou, reisen udongein, & reimu)</sup>
 - umamusume <sup>(i like fujimasa march & mejiro mcqueen)</sup>
-- honkai impact 3rd & honkai star rail <sup>(bronya fan since 4.9)</sup>
-- project sekai <sup>(i like kanade yoisaki)</sup>
+- project sekai <sup>(kanade yoisaki)</sup>
 - Zenbu Kowashite Jigoku De Aishite/Destroy It All & Love Me In Hell <sup>( yoshizara kurumi)</sup>
-  
-<sup>(sadly, i don't play pjsk , hi3 & hsr anymore)</sup>
+- Bocchi The Rock <sup> ( hitori gotou)
 
-<sup>(btw i cant access my SP cuz iforgo the pass)</sup>
 
 my birthday is on march 14.<br>
 i'm usually afk / tabbed out.<br>
